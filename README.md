@@ -6,4 +6,4 @@
 - 🌱 I’m presently learning  Computer Science and GITHUB
 - 💬My hobbies are Coding , Online Gaming , travelling and watching anime 
 
-- ⚡ Fun fact about me : is nothing   
+- ⚡ Fun fact about me : I am very much active along with it I am short tempered
